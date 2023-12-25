@@ -1,7 +1,7 @@
-# SAI PAVAN
+# I'm saipavan😉
 
 
-# gitStats ~_~
+# My gitStats🌱
 
 
 [![](https://raw.githubusercontent.com/saipavan2702/github-decorator/master/profile-summary-card-output/dark/0-profile-details.svg)](https://github.com/vn7n24fzkq/github-profile-summary-cards)
